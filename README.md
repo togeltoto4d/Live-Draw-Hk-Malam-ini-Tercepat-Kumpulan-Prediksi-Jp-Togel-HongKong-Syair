@@ -12,4 +12,4 @@ Live Draw HK mulai menampilkan kepada kita semua hasil togel Hongkong secara liv
 Live Draw Hong Kong
 
 Live Draw togel HK / HongKong Pools 6D dimulai pada pukul 23.45 WIB untuk memberi kita semua hasil keluaran HK secara langsung hingga pukul 23.06 WIB.
-<p><a class="markdown-link" href="https://tinyurl.com/TOTO4DK" target="_blank" rel="noopener"><img class="alignnone" src="[https://i.ibb.co/x6hG0Fv/SLOT4-D-TOTO-TOGEL4-D.gif](https://i.ibb.co/7CtKLP7/Screenshot-1.png)" width="360" height="116" /></a></p>
+<p><a class="markdown-link" href="https://tinyurl.com/TOTO4DK" target="_blank" rel="noopener"><img class="alignnone" src="[https://i.ibb.co/x6hG0Fv/SLOT4-D-TOTO-TOGEL4-D.gif](https://i.ibb.co/7CtKLP7/Screenshot-1.jpg)" width="360" height="116" /></a></p>
